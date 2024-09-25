@@ -1,4 +1,4 @@
-### Oi eu sou o Luquinhas pp!
+### Oi eu sou o Lucas!
 
 <div>
   <a href="https://beacons.ai/xwlyxx">
